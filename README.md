@@ -1,2 +1,2 @@
-# Hello-world
+My name is Pierce I am extremely new to the coding world. I am wanting to learn as much as I can no matter the time frame. I would appreciate a patient and willing teacher to help me along my path of ever increasing knowledge. I'm 37 single and have an insatiable thirst for knowledge. Please hmu anytime don't be shy because of my looks. # Hello-world
 New here and to coding. I will take all help with my learning of python Linux and JavaScript. So don't be shy help me e guys! 
